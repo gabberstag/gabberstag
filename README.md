@@ -4,6 +4,6 @@
   </a>
 </p>
 
-<p align=center> hey there buck fucker, do u want to get ur fuck on?
+<p align=center> hey there buck fucker, do u want 2 get ur fuck on?
 
 <p align=center> this is stag party where we fuck from dusk 2 dawn
